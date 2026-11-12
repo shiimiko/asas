@@ -168,5 +168,3 @@ Její největší předností je **mobilita, kritické poškození a schopnost e
 Odměňuje hráče, kteří vědí, kdy zaútočit a kdy raději počkat.
 
 *Jeden úder může rozhodnout o všem.*
-
-**Lov nikdy nekončí.** 🗡️
