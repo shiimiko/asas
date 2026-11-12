@@ -54,7 +54,7 @@ Její hlavní strategie:
 
 ## 🖼️ Vzhled hrdinky
 
-![Phantom Assassin](images/phantom-assassin.jpg)
+![Phantom Assassin](wk3zkh---c16x9x50px50p--f0453a5711dc1fec21d8f8d03531c787.png)
 
 *Phantom Assassin – Mortred, smrtící vražedkyně ze hry Dota 2.*
 
